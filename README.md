@@ -1,5 +1,4 @@
-**Hi there, I am Ivan Zakharov**                                                                                                                                               
-I am studying in Moscow Higher School of Economics university.                                                                                                                                
+**Hi there, I am Ivan Zakharov**                                                                                                                                                                                                                                                                              
 **Please, contact me:**                                                                                                                                                     
     Telegram: [@ivzakharov](https://t.me/ivzakharov)                                                                                                                      
     E-mail: zakharov.ia18@gmail.com 
