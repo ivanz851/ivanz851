@@ -3,7 +3,7 @@
     Telegram: [@ivzakharov](https://t.me/ivzakharov)                                                                                                                      
     E-mail: zakharov.ia18@gmail.com 
 
-**Competitive programming** \\
+**Competitive programming:** 
     Codeforces (max. 2185): [ivanz](https://codeforces.com/profile/ivanz) \\    
     AtCoder (max. 1813): [ivanz](https://atcoder.jp/users/ivanz) \\
     CodeChef (max. 2382): [ivanz](https://www.codechef.com/users/ivanz) \\
