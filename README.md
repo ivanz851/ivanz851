@@ -1,5 +1,5 @@
 **Иван Захаров**   
-telegram: [@ivzakharov](https://t.me/iazakharov_3)                                                                                              
+telegram: [@iazakharov_3](https://t.me/iazakharov_3)                                                                                              
 e-mail: iazakharov_3@edu.hse.ru \
 \
 **Обо мне:** \
