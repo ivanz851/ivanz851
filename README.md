@@ -1,6 +1,6 @@
 **Иван Захаров**   
-telegram: [@ivzakharov](https://t.me/ivzakharov)                                                                                              
-e-mail: zakharov.ia18@gmail.com \
+telegram: [@ivzakharov](https://t.me/iazakharov_3)                                                                                              
+e-mail: iazakharov_3@edu.hse.ru \
 \
 **Обо мне:** \
 Планируемая занятость: 40 часов в неделю (с лета 2024). \
